@@ -1,1 +1,1 @@
-Many of the asset / icon come from https://game-icons.net/ under CC BY 3.0 license.
+Many of the assets / icons come from https://game-icons.net/ under CC BY 3.0 license.
